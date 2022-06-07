@@ -21,7 +21,7 @@ Gtw coba aja
 
 'tanks to tim'
 
-[![zεσηεσғc](https://github.com/zeeone-ofc.png?size=100)](https://github.com/zeeone-ofc) </p>  `TIO`  </p>
+[![zεσηεσғc](https://github.com/zeeone-ofc.png?size=100)](https://github.com/zeeone-ofc) </p>  `zєєσnєσfc`  </p>
 
 
 [![VERDI](https://github.com/VERDIBOTZ1.png?size=100)](https://github.com/VERDIBOTZ1) </p>  ` verdi`  </p>
